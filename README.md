@@ -1,0 +1,59 @@
+# Jamiroquai – Everyday
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+baby maybe
+we can spend a little
+time together
+now that we're alone
+so long I have been waiting
+now can't you let me
+take you home
+all these things we do
+will make our dreams come true
+you want me
+and I surely want you
+tell me where to go
+tell me what I need to know to
+take you on a little ride
+hold me, control me
+let me circumnavigate your
+body mind and soul
+like a seed from a flower
+I can grow and you must know
+sadness don't mean a thing
+'cos you and me girl
+you know we're in the swing
+all the thing that I want to
+get with you on a
+mid summer night
+in the evening light
+sweet evening light
+all these things we do
+will make our dreams come true
+I want you - you want me
+I surely need you baby
+and so far what we've done
+has made our lives become
+something more
+than evening light to
+make it right
+all, all I want from you baby
+is sweet loving now no,
+no yes I know I know
+what I want from you girl
+we can make it right
+we can hold on to
+each other tight
+lose our inhibitions yeh
+yeh yeh yeh
+every little thing we do is good
+every little thing
+you see is sweet
+every little part of
+you i'd like to meet
+I want you girl,
+you know I want you
+I want you in the evening light
+```
